@@ -1,2 +1,1 @@
-# music
-hahaha funny meth meme
+Please don't fucking take this seriously
